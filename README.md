@@ -2,5 +2,6 @@
 
 I'm a software engineer at Tumblr.
 
-🌸 [my personal site](https://superchlorine.com)<br>
-🙈 [oh no it's my tumblr](https://superchlorine.tumblr.com)
+🌸 [my personal site](https://superchlorine.com) (rarely updated)<br>
+✨ [my tumblr](https://superchlorine.tumblr.com) (updated too much)<br>
+🦀 [janky emoji](https://janky.tumblr.com) (drawn by me!)
